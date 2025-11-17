@@ -1,1 +1,1 @@
-Curso 1ro B
+Primero B
